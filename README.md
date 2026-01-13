@@ -26,4 +26,4 @@ We value your trust. Since all data stays on your device, the security of your d
 We may update our Privacy Policy from time to time. You are advised to review this page periodically for any changes.
 
 ### 6. Contact Us
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at: **[SEU E-MAIL AQUI]**
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at: **cnantlui@gmail.com**
