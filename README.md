@@ -1,0 +1,2 @@
+# purescan-privacy
+POLÍTICA DE PRIVACIDADE - PURESCAN
